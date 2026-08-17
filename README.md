@@ -34,6 +34,5 @@ I'm interested in **Data Science, Data Analytics, Machine Learning, and AI**, an
 To secure a **good internship in Data Analytics, Data Science, or AI/ML**, gain real-world experience, and apply my skills to meaningful projects.
 
 ---
-⭐ Learning • Building • Improving
 
 ⭐ **Learning • Building • Improving**
